@@ -28,3 +28,5 @@ Tangled is a heartwarming animated film that follows *Rapunzel*, a spirited youn
 - 😂 Funny, lovable characters (Pascal and Maximus!)
 - 🌈 Inspiring story about freedom, courage, and finding your purpose
 - 💞 A sweet love story with great chemistry between Rapunzel and Flynn
+
+  
