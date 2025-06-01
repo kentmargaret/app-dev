@@ -28,3 +28,15 @@ Tangled is a heartwarming animated film that follows *Rapunzel*, a spirited youn
 - 😂 Funny, lovable characters (Pascal and Maximus!)
 - 🌈 Inspiring story about freedom, courage, and finding your purpose
 - 💞 A sweet love story with great chemistry between Rapunzel and Flynn
+
+---
+
+## 🎵 Favorite Song
+
+🎤 "I See the Light" – A beautiful duet that captures the magic of the moment.
+
+---
+
+## 🧠 Fun Fact
+
+Tangled was Disney’s 50th animated feature film and was one of the most expensive animated films ever made!
